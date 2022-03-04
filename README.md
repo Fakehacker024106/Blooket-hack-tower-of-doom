@@ -1,2 +1,2 @@
-# Blooket-hack-tower-of-doom
-The hack are copy to gliz in this link: https://schoolcheats.net/blooket/
+The tower of doom is copy to gliz because im not have any hack and LINK: 
+https://github.com/glixzzy/blooket-hack
